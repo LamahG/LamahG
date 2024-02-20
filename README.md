@@ -5,9 +5,12 @@ En tant que développeur, je m'efforce d'allier ma position pour la technologie 
 
 ## Education
 **Bacc:** annee 2020
+
 **Licence en informatique:** en cours..
 
 ## Contact
 **Email:**anjanionyramaromanana5@gmail.com
+
 **Telephone:** +261381140425
+
 **facebook:** Al Lamah
