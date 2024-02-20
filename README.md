@@ -9,7 +9,7 @@ En tant que développeur, je m'efforce d'allier ma position pour la technologie 
 **Licence en informatique:** en cours..
 
 ## Contact
-**Email:**anjanionyramaromanana5@gmail.com
+**Email:** anjanionyramaromanana5@gmail.com
 
 **Telephone:** +261381140425
 
